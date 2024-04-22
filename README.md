@@ -1,0 +1,1 @@
+# yonamine_stone
